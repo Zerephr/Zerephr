@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning all kinds of codes (Haven't decide my major yet or what feels natural).
 - 🌱 I’m currently learning computer programming in college.
 - 💞️ I’m looking to collaborate on all kinds of project so I can gain more experience.
-- 📫 You can reach me by .
+- 📫 You can reach me by zerephr@gmail.com
 -  ^_^ Thank for reading have a wonderful day.
 
 <!---
